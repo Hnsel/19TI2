@@ -1,0 +1,2 @@
+# 19TI2
+Oleh Albert Hansel 03082190034 19TI2
